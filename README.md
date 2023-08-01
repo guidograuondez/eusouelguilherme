@@ -15,6 +15,6 @@
 Qualquer dúvida entre em contato
 <a href="mailto:soares.gomes.guilherme@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"/></a>
 
-![](![image](https://github.com/guidograuondez/eusouelguilherme/assets/140520433/3661eeee-cefb-4046-99d6-d2e00cc639fd)
-)
+![](https://media.tenor.com/e0UK5JqKgoQAAAAd/initial-d.gif)
+
 
